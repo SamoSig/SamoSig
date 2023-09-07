@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @SiGGySouR
+- 👋 Hi, I’m @SamoSig
 - 👀 I’m interested in learning how to HACK
 - 🌱 I’m currently learning how to HACK
 - 💞️ I’m looking to collaborate with Anonymous.
